@@ -1,2 +1,2 @@
 # note_nest_app
-![noteNest](https://github.com/user-attachments/assets/0778e716-eb13-4faf-81a5-80d11f8002e6)
+![noteNest1](https://github.com/user-attachments/assets/fd44d00c-016f-4423-84e9-3235155ecb49)
